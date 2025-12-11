@@ -1,1 +1,1 @@
-https://UrevDanil.github.io/rabota-2/
+https://urevdanil.github.io/rabota-2/
