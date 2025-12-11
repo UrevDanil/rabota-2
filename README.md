@@ -1,1 +1,1 @@
-https://ravenholmresonance.github.io/Bootstrap-Slider-Feedback-/
+https://UrevDanil.github.io/rabota-2/
